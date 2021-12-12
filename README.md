@@ -1,1 +1,1 @@
-# kamubinalar-depremincelemeenvarter
+# kamubinalaridepremincelemeenvarter
